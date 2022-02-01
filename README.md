@@ -1,2 +1,2 @@
 # blue1
-Great repository names are short and memorable.
+https://sksowrab.github.io/blue1/
